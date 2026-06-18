@@ -1,3 +1,4 @@
+<img width="400" height="400" alt="1000005601" src="https://github.com/user-attachments/assets/b0336df8-3230-4906-b939-64b4f10f53f6" />
 # -peerachulaphiphop akaram
 สารคดีกำเนิดมนุษย์ของฉัน(ไม่อนุญาติให้คัดลอก)
 
